@@ -1,0 +1,1 @@
+# Fejszamolas_hatvanyok_gyokok
